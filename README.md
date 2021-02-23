@@ -11,8 +11,6 @@ Preview : https://www.youtube.com/watch?v=2rE5FcxG_ik
 
 You can modif whatever u want
 
-My shop online https://sites.google.com/view/ozne-developpement
-
 _-_-_-_-_-_-_-_-_-_-_-_-_-_
        	Ozne#4870
 _-_-_-_-_-_-_-_-_-_-_-_-_-_
